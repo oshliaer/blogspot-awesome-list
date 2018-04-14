@@ -1,0 +1,1 @@
+# blogspot-awesome-list
